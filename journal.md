@@ -1,7 +1,10 @@
+# September 15, 2025
+
+A good AI project would be for farming. An AI farm is pretty creative in my eyes would be creative in terms of benefits to society and in mechanical processes it could do in order to farm productively. My idea meets the challenge requirements because the challenge wants Ai to be used reponsibly and ethically, and farming by AI is both ethical and reponsible because it provides resource to society. It could even probably be trained to detect product that is bad and rotten or filled with disease. That's why I think AI could be used reponsibly and ethically for farming. Not only that it can be extremely beneficial in multiple areas under the umbrella of farming.
+
 # September 8, 2025
 
 I'm extremely interest in music. Music was something I was sub-conciously doing since I was 5. Singing was something I used to do everyday, humming the rhythyms and melodies I can get out my head. Music today, is easily accessible with many applications. I could even make my own software, it'd obviously take time but I could make one, or make a plugin for people to use. Computer science definitely ropes into music production, a TON considering it is quite literally, creating audio that sounds pleasing to the human ear. It takes skill to make a synthesizer, and it takes skill to master it.
-
 
 # September 2, 2025
 
