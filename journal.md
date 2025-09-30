@@ -1,3 +1,7 @@
+# September 30, 2025
+
+The phrase "6, 7" is a viral, senseless trend among students that came from a joke rap song. It has no real meaning, but its confusion is the point. Students use it as a kind of inside joke, often shouted in the hallways or whispered descreetly during class. Its usage builds a sense of familiarity and shared humor within their peer group. The repetitive, almost melodic, speech of the numbers is part of the fun. Ultimately, the phrase exists purely for the fun of being in on a joke adults don't understand.
+
 # September 15, 2025
 
 A good AI project would be for farming. An AI farm is pretty creative in my eyes would be creative in terms of benefits to society and in mechanical processes it could do in order to farm productively. My idea meets the challenge requirements because the challenge wants Ai to be used reponsibly and ethically, and farming by AI is both ethical and reponsible because it provides resource to society. It could even probably be trained to detect product that is bad and rotten or filled with disease. That's why I think AI could be used reponsibly and ethically for farming. Not only that it can be extremely beneficial in multiple areas under the umbrella of farming.
