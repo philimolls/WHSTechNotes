@@ -1,3 +1,8 @@
+# October 14, 2025
+
+https://brutalism.my.canva.site/
+It was structured in a simple term, that allowed Canva wiggle in terms of creation of the quiz. Canva used the prompt I gave it in great terms, its curious because I thought it would've lacked in terms of creativity. Although my expectations were low it exceeded the low expectations. So, the most interactive parts about the quiz, were the few buttons on the screen, and the simple scoring. I could add maybe some graphic design, and watch it meticioulusly build it. But overall, Canva AI is not that bad in terms of quiz creation, in my eyes.
+
 # September 30, 2025
 
 The phrase "6, 7" is a viral, senseless trend among students that came from a joke rap song. It has no real meaning, but its confusion is the point. Students use it as a kind of inside joke, often shouted in the hallways or whispered descreetly during class. Its usage builds a sense of familiarity and shared humor within their peer group. The repetitive, almost melodic, speech of the numbers is part of the fun. Ultimately, the phrase exists purely for the fun of being in on a joke adults don't understand.
