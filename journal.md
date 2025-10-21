@@ -1,3 +1,14 @@
+# October 20, 2025
+
+| Syntax | Description |
+| --- | ----------- |
+| Name | Age | Toy |
+| Max | 3 | Train |
+| Kylie | 4 | Dinosaur |
+| Emma | 5 | Plush Dog |
+
+
+
 # October 14, 2025
 
 https://brutalism.my.canva.site/
