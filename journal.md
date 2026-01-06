@@ -1,3 +1,7 @@
+# January 6, 2026
+
+First things first, Happy New Year. I messed around over the break, making music and experimenting with different genres. The app, or more specifically DAW (Digital Audio-Workstation), was Bitwig. I've been using it for a few years now, but I think it's time I should get something new, like Abelton, but for the most part I made music, animated on blender a little bit, and messed around in roblox studio.
+
 # October 27, 2025
 
 | Syntax | Description |
