@@ -1,3 +1,7 @@
+# January 21, 2026
+
+Techonology more than likely will never be used fairly. My views are usually pessimistic but overall the technology we have now only "Acts" until it's been too late. We can post about BLM, we can tweet about this and that, but in the eyes of the consumer they only look for an entertainer. The people who actually want equality are overshadowed by the people in power who silence them, and why does this work? Because people are too busy ranting about "brain rot" and the growing international disturbance that people from around the world are all thinking, "This might be WW3," it won't unless you truly believe it will. Furthermore, people care more about the general safety, rather than the safety of a specific minority, let's be honest a nuke looming over our heads wouldn't have people donating to the homeless. In the world of global communication and allbeit small but growing equality and justice for those who are colored, people as of yet, just don't care enough.
+
 # January 6, 2026
 
 First things first, Happy New Year. I messed around over the break, making music and experimenting with different genres. The app, or more specifically DAW (Digital Audio-Workstation), was Bitwig. I've been using it for a few years now, but I think it's time I should get something new, like Abelton, but for the most part I made music, animated on blender a little bit, and messed around in roblox studio.
